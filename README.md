@@ -1,6 +1,6 @@
 ## Hi there 👋
 
-![Black Green Modern Marketing Strategist LinkedIn Banner](https://github.com/user-attachments/assets/8965ea33-d660-414f-8658-14b2176a09b6)
+
 
 
 
